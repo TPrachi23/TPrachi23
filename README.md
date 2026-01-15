@@ -9,8 +9,8 @@ Data Analyst
 
 I am currently pursuing Master of Science in Data Analytics from Boston University.
 
-*   🌍  I'm based in Boston
-*   ✉️  You can contact me at [tprachi2311@gmail.com](mailto:tprachi2311@gmail.com)
+*   🌍  I'm based in Dallas, TX
+*   ✉️  You can contact me at [thakur_prachi@outlook.com.com](mailto:thakur_prachi@outlook.com)
 *   🤝  I'm open to collaborating on interesting projects
 
   
